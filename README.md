@@ -1,2 +1,2 @@
-Nama:Rafi Althaf Hendiansyah 
-NIM:24060123140158
+Nama: Rafi Althaf Hendiansyah
+NIM: 24060123140158
